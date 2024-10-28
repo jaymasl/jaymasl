@@ -1,1 +1,3 @@
-https://www.linkedin.com/in/james-masland-64a18b294/
+https://www.jaykrown.com
+
+[LinkedIn](https://www.linkedin.com/in/jamesmasland/)
